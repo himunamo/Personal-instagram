@@ -1,2 +1,2 @@
-# Personal instagram
- portfolio of my photography carrer
+# Personal Instagram
+ Portfolio of my Photography Career
